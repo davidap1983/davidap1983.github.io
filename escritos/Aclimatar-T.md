@@ -1,0 +1,3 @@
+# Aclimatar-T
+
+Está comprobado que las cosas que precisan de una decisión determinante, o más coloquialmente, de calado, no se cambian en un día. A su vez hay que estar preparado y asumir que quizás no cambien nunca. Ni a mejor, ni a peor, y eso para una mayoría muchas veces silenciosa, otras desternillante, otras preocupante, el mejor cambio es que nunca cambie nada. Cuando el pasado es excesivamente abrupto y el interior de nuestra cabeza pasa por demasiados desniveles a una velocidad vertiginosa solo puedes aferrarte a que el frenazo no sea en seco, sino que se aclimate a la realidad, cómodo y sutil para no sentirte extraño y hacer que el círculo se convierta como tantas otras veces en tu vida, en una espiral hipnotizadora sin final.
