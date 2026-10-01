@@ -16,10 +16,10 @@ Notas y referencias musicales. En construcción.
 > [!todo]
 > Añadir URL de Spotify cuando esté disponible.
 
-**Status Quo** — playlist (título exacto pendiente)
+**Status Quo Creates Hits**
 
 > [!todo]
-> Añadir nombre exacto y URL de Spotify cuando estén disponibles.
+> Añadir URL de Spotify cuando esté disponible.
 
 ---
 
