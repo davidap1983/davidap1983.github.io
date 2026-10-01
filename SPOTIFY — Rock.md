@@ -21,6 +21,12 @@ Notas y referencias musicales. En construcción.
 > [!todo]
 > Añadir URL de Spotify cuando esté disponible.
 
+**Nuestro Rock & Roll 🎸🥁🎷🎹🎼☠️**
+[Abrir en Spotify](https://open.spotify.com/playlist/6i0NmXhxdjVEnM6Uqew5jz)
+
+**Compartir contigo siempre ❤️**
+[Abrir en Spotify](https://open.spotify.com/playlist/0Z5Dpm46bvXT5RWLk9Aqu4)
+
 ---
 
 ## Por explorar
