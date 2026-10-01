@@ -11,6 +11,11 @@ Notas y referencias musicales. En construcción.
 > [!todo]
 > Añadir URL de Spotify cuando esté disponible.
 
+**Robe / Extremoduro #Eterno**
+
+> [!todo]
+> Añadir URL de Spotify cuando esté disponible.
+
 ---
 
 ## Por explorar
