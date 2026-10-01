@@ -4,10 +4,12 @@ Notas y referencias musicales. En construcción.
 
 ---
 
-## Playlists pendientes
+## Playlists
+
+**∞ 🇪🇸 — Rock** (título: símbolo del infinito + bandera republicana)
 
 > [!todo]
-> **Playlist del infinito y la bandera republicana** — no localizable por descripción de imagen. Añadir nombre exacto o URL cuando esté disponible.
+> Añadir URL de Spotify cuando esté disponible.
 
 ---
 
